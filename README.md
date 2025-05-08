@@ -1,0 +1,5 @@
+![Знімок екрана 2025-05-07 215121](https://github.com/user-attachments/assets/6488ea7e-cdea-4ab1-95eb-2d805d893a5d)
+![Знімок екрана 2025-05-07 220444](https://github.com/user-attachments/assets/a755a5d7-c6ce-41cc-a143-b74bec91ae0f)
+![Знімок екрана 2025-05-07 220502](https://github.com/user-attachments/assets/45b39d05-3213-4ec7-9cce-d2589f3b48fb)
+![Знімок екрана 2025-05-07 220557](https://github.com/user-attachments/assets/1545ad82-b635-4b07-be99-a106e3b78ea4)
+![Знімок екрана 2025-05-07 220718](https://github.com/user-attachments/assets/8c9d7fa5-184d-4fb7-8e60-381477bf0964)
